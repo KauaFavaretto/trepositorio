@@ -1,3 +1,10 @@
 Teste de memoria jwdwvildkçaw
 dwad,wadpçaw
-dwaldawd
+dwaldawdgre
+ggrdgdr
+gdrgdrgd
+
+dfsfsd
+fsdfsdf
+dsfsd
+fsd
